@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Manipandy
 - 👀 I’m interested in Horror
 - 🌱 I’m currently learning Life and Full Stack Devolopment
-- 📫 to reach me Mail= manipandy98@gmaoil.com 
+- 📫 to reach me Mail= manipandy98@gmail.com 
 - 😄 He/Him
